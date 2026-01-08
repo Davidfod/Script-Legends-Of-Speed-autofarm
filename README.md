@@ -1,1 +1,0 @@
-# Script-Legends-Of-Speed-autofarm
